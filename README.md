@@ -1,1 +1,1 @@
-# queerinitiative.github.io
+Queer Initiative is under construction.
